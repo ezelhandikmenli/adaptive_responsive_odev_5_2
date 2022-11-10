@@ -1,0 +1,1 @@
+# adaptive_responsive_odev_5_2
